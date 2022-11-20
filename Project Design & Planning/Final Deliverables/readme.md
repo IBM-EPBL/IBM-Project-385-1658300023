@@ -1,3 +1,3 @@
-Please check our Project Demo link attached below:
+Please check out our Project Demo link attached below:
 
 Youtube link:https://youtu.be/eyXS-4Z03QE
